@@ -1,1 +1,0 @@
-# artefacts-claude-walid
